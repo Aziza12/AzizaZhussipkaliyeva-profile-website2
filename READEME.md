@@ -2,4 +2,6 @@
 some information about my website
 
 
-website about myself.
+website about myself.ya 
+
+I love photography.
